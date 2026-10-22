@@ -1,1 +1,1 @@
-# IIT-Ropar
+# IIT ROPAR
